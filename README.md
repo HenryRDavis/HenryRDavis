@@ -7,7 +7,7 @@ Here are my socials!
 - LinkedIn: https://www.linkedin.com/in/henry-davis-3536501a9/
 - Instagram: https://www.instagram.com/rainfallsprings/
 - Youtube: https://www.youtube.com/channel/UCqO71B0g9KJofvJsXPKa3Hw
-
+----------------------------------------------------------------------------
 - 💬 Ask me about anything! No, really anything.
 - 📫 How to reach me: itshenrydavis@gmail.com
 - ⚡ Fun fact: I own 15 guitars! 🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸🎸
